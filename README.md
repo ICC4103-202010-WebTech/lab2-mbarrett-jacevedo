@@ -1,2 +1,2 @@
-Magdalena Isabel Barrett Molina
+Magdalena Isabel Barrett Molina,
 Josefina Acevedo Molina
